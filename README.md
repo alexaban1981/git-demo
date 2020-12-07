@@ -6,3 +6,6 @@ jafsjdsa
 
 
 Alaan ino ezafe kardam
+
+
+Ino alaan dobare ezafe kardam
